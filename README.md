@@ -1,1 +1,1 @@
-# Student-Hostel-Hackathon-
+# Student-Hostel-Hackathon-Certificate
